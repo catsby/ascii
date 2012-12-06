@@ -21,6 +21,7 @@ A collection of ASCII art I use frequently to express emotion/troll
     (ó ì_í)=óò=(ì_í ò)  
     ✌(◕‿-)✌ 
     ಠ_ರೃ
+    ༼ ༎ຶ ෴ ༎ຶ༽
   
     cap theorem ︵ ╯(.□.╯)  
   
