@@ -25,6 +25,8 @@ A collection of ASCII art I use frequently to express emotion/troll
     
     ♪(┌・。・)┌
   
+    (=^･^=)
+    
     cap theorem ︵ ╯(.□.╯)  
   
     (╯°□°）╯︵  ʇsɐoɔ ʇsɐǝ  
