@@ -22,13 +22,10 @@ A collection of ASCII art I use frequently to express emotion/troll
     ✌(◕‿-)✌ 
     ಠ_ರೃ
     ༼ ༎ຶ ෴ ༎ຶ༽
-    
     ♪(┌・。・)┌
-  
     (=^･^=)
-    
-    cap theorem ︵ ╯(.□.╯)  
-  
+
+    cap theorem ︵ ╯(.□.╯) 
     (╯°□°）╯︵  ʇsɐoɔ ʇsɐǝ  
     (╯°□°）╯︵  puɐlƃuǝ ʍǝu  
     (╯°□°）╯︵  ʎɐpoʇ  
