@@ -11,6 +11,7 @@ A collection of ASCII art I use frequently to express emotion/troll
     (╯°□°)╯/(.□. \）  
     ಠ_ಠ  
     ಠ益ಠ  
+    ಠ෴ಠ
     ¯\_(ツ)_/¯  
     ¯\(°_o)/¯  
     ☜(ﾟヮﾟ☜)  
