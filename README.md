@@ -3,6 +3,7 @@ A collection of ASCII art I use frequently to express emotion/troll
   
 
     (ﾉ^_^)ﾉ  
+    ゞ(’□’*)ノ
     (╯°□°）╯︵ ┻━┻  
     (ノಠ益ಠ)ノ彡┻━┻  
     (╯°□°）╯︵ sıɥʇ  
