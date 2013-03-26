@@ -37,6 +37,7 @@ A collection of ASCII art I use frequently to express emotion/troll
     ^(*o*^)
     ヽ(`Д´)ﾉ
     ( ﾟдﾟ)
+    (੭ु ‾̑ω‾̑)੭ु⁾⁾  
     
     (•_•) , ( •_•)>⌐■-■ , (⌐■_■)
     
