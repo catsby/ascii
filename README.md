@@ -40,6 +40,10 @@ A collection of ASCII art I use frequently to express emotion/troll
     (੭ु ‾̑ω‾̑)੭ु⁾⁾  
     
     (•_•) , ( •_•)>⌐■-■ , (⌐■_■)
+
+    ( °_°)
+    ( °_°)‿‑●‑●
+    (‑●‑●)>
     
     | (• ◡•)|/ \(❍ᴥ❍ʋ) 
 
