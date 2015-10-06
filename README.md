@@ -49,6 +49,15 @@ A collection of ASCII art I use frequently to express emotion/troll
 
     |(•◡•)|╯╰(❍ ᴥ ❍ ʋ)
 
+	(;,;)
+	(;,,,;)
+	(°,,,°)
+	~^(;,;)^~
+	/|\(;,;)/|\
+	:€
+	
+	\,,/(^_^)\,,/
+
     ($¿$)
     (ಠ¿ಠ)
     [ô¿ô]
