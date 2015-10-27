@@ -24,6 +24,7 @@ A collection of ASCII art I use frequently to express emotion/troll
     ✌(◕‿-)✌ 
     ಠ_ರೃ
     ༼ ༎ຶ ෴ ༎ຶ༽
+    ༼⊙_⊙༽
     ♪(┌・。・)┌
     (っˆーˆ)っ 
     (=^･^=)
